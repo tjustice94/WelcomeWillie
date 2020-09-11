@@ -1,3 +1,2 @@
 # REALM CLEARING
-YO
-yessir 
+yo
